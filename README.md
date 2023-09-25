@@ -18,3 +18,7 @@ Join Class:
 
 ![Screenshot 2023-09-25 200842](https://github.com/sahanprakash00/Virtual_Classroom/assets/130571287/4f604243-e6e4-41d8-bc65-25d4f8e9a3d5)
 
+About Class and Assignment:
+
+![Screenshot 2023-09-25 200856](https://github.com/sahanprakash00/Virtual_Classroom/assets/130571287/202b59c5-5e9b-4d35-913b-7fa4c446a774)
+
